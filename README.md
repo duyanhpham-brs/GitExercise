@@ -1,4 +1,0 @@
-Duy
-Amine
-Hatim
-Najlae
